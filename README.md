@@ -13,5 +13,5 @@
 
 ---
 
-[🎓👨.ml](xn--nk8hjn.ml)
+[🎓👨.ml](https://xn--nk8hjn.ml)
 
