@@ -13,4 +13,5 @@
 
 ---
 
-[xn--nk8hjn.ml](xn--nk8hjn.ml)
+[🎓👨.ml](xn--nk8hjn.ml)
+
